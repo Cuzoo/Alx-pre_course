@@ -1,1 +1,1 @@
-my first readme
+Son Of Ndubuisi
